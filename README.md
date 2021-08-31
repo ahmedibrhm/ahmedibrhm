@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ahmedibrhm
+- 👀 I’m interested in AI
+- 🌱 I’m currently studying at Minerva University
+- 📫 How to reach me: linkedin.com/in/ahmedibrhm
